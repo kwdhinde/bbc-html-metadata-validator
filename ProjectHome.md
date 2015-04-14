@@ -1,0 +1,1 @@
+See http://www.bbc.co.uk/guidelines/newmedia/desed/searchmetadata.shtml
